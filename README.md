@@ -1,1 +1,2 @@
 Sofia Mansilla
+Marcelo Valenzuela
